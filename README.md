@@ -1,1 +1,6 @@
 # study
+
+dkhasjhkfgk
+
+* ahdjfjkghasgf
+* addafdsf
